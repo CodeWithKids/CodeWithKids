@@ -4,5 +4,3 @@
 - 💞️ I’m looking to collaborate on fun STEM programs
 - 📫 How to reach me codewithkidsafrica@gmail.com
 - ⚡ Fun fact: The World is flat
-
-
